@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...software development projects 
 - 🌱 I’m currently learning ...python 
 - 💞️ I’m looking to collaborate on ...innovative software projects 
-- 📫 How to reach me ...[nanacarstillo238@gmail.com]
+- 📫 How to reach me ...[nanacarstillo138ent@gmail.com]
 [ emmanuelakosah138@gmail.com]
 - 😄 Pronouns: ...He is 
 - ⚡ Fun fact: ...I love ladies ❤️❤️
